@@ -28,6 +28,5 @@ I’m a **Co-Founder and Strategic Growth Leader** with 20+ years in SaaS & GenA
 ---
 
 ### 📫 Connect  
-- [LinkedIn](https://www.linkedin.com/in/dawnbernsley)  
-- [GitHub](https://github.com/dawnbernsley)  
-- Email: available on request  
+[LinkedIn](https://www.linkedin.com/in/dawnbernsley) • [GitHub](https://github.com/dawnbernsley) • 📧 dawnbernsley@gmail.com
+
